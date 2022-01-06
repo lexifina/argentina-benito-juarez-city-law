@@ -1,0 +1,16 @@
+Ordenanza Nº5738
+Ordenanza Nº 5738
+Benito Juarez, 25/11/2021
+Que es necesario actualizar y adecuar la ordenanza municipal Nro. 3.927 del año 2.007, de acuerdo a los tiempos que corren, y;
+Considerando:
+Que la sobrepoblación de perros y gatos a raíz de la falta de cuidado responsable de los mismos por parte de la ciudadanía, ha generado diversas problemáticas;
+Que la vida en comunidad hace necesaria la existencia de normas de convivencia que la reglamenten y que generen responsabilidades hacia quienes las incumplan;
+Que el equilibrio biológico se logra, no propendiendo a la erradicación o al encierro de los animales, sino a su desarrollo controlado y sanitario, en una concepción de respeto por la vida que tienda a armonizar su relación con el hombre y con el ambiente; ya que esta biológicamente demostrado que un animal que es retirado del hábitat rápidamente es sustituido por otro que llega a ocupar este espacio territorial liberado;
+Que la ley provincial Nro. 14.107 establece normas aplicables a la tenencia de especies caninas potencialmente peligrosas, y genera el registro de propietarios de perros, como también la inscripción de estos por razas, tipología, etc.; su identificación, con mecanismos como el tatuaje; y así también la obligatoriedad de utilización de bozal en su traslado o permanencia en la vía o espacio público;
+Que la ley nacional Nro. 14.346 establece penas para personas que maltraten o hagan víctimas de actos de crueldad a los animales;
+Que la ley provincial Nro. 13.879 establece el método de castración por medio de la esterilización quirúrgica como único método de control poblacional de perros y gatos, prohíbe en las dependencias oficiales de toda la provincia la práctica del sacrificio de los mismos, y declara la obligatoriedad de tratamientos antiparasitarios con la finalidad de prevenir enfermedades zoonóticas, provocadas por hidatidosis, ascaridiasis, giardiasis, ancylostoma, etc.;
+Que la ley nacional Nro. 22.953 establece medidas tendientes al control y erradicación de la rabia en todo el territorio de la república;
+Que se mantuvieron una serie de reuniones presenciales y virtuales, donde se realizó un trabajo en común, rico en debate y con el objetivo de mejorar la ordenanza vigente en el Partido de Benito Juárez, con organizaciones de la comunidad como la asociación “Callejeritos” de las localidades de Villa Cacique y Barker y “A.Gu.Can.” (Amigos de guardería canina de Benito Juárez); también con ciudadanos no organizados que se ocupan de la temática, y especialmente con la Asociación contra el maltrato animal “Patitas Caninas”, cuyos integrantes hicieron diversos aportes, entre ellos facilitar el contacto y organizar reuniones con la organización no gubernamental “Red de políticas públicas” que brinda asesoramiento y capacitación sobre problemáticas de equilibrio poblacional de perros y gatos tanto a organizaciones de voluntarios, como dependientes del estado. Además, se desarrollaron reuniones con áreas del Departamento Ejecutivo Municipal, como la Jueza de faltas municipal, y en especial con integrantes de la Dirección de Bromatología – Secretaría de Salud.
+El Honorable Concejo Deliberante de la municipalidad de Benito Juárez en uso de sus atribuciones que le son propias, resuelve y:
+ORDENANZA
+Del objeto y disposiciones generales:
