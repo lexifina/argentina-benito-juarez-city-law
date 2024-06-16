@@ -1,0 +1,11 @@
+Ordenanza Nº6015
+Ordenanza Nº 6015
+Benito Juarez, 25/04/2024
+lo actuado en el Expediente Letra “G” Nº 91/2021, en el cual de fojas 29 a 45 obra el CONVENIO DE ADHESION, COOPERACION Y COMPROMISO PARA LA ADQUISICION DE EQUIPAMIENTO, suscripto con el MINISTERIO DE AMBIENTE Y DESARROLLO SOSTENIBLE DE LA NACION, registrado bajo el Nº 34/2021 del Registro Municipal de Convenios, el cual fuera convalidado por la Ordenanza Municipal Nº 5740,
+Que de fojas 55 a 61 obra copia de la ADENDA Nº 1, al CONVENIO DE ADHESION, COOPERACION Y COMPROMISO PARA LA ADQUISICION DE EQUIPAMIENTO, suscripto con el MINISTERIO DE AMBIENTE Y DESARROLLO SOSTENIBLE DE LA NACION, registrado bajo el Nº 34/2021 del Registro Municipal de Convenios, registrada bajo el Nº 05/2024, del Registro Municipal de Convenios, por la cual EL MINISTERIO, se compromete a CEDER A TITULO GRATUITO CONDICIONADO los bienes que hayan podido ser efectivamente adquirido a favor del MUNICIPIO y que se detallan en el listado del ANEXO I “Detalle de los bienes”.-
+Que a fojas 63 y 64 obra ACTA DE RECEPCION DE BIENES INTEGRAL, correspondiente al ANEXO I (fjs. 35), del Contrato registrado bajo el Nº 34/2021, que consta de 1 CARRO, 1 ENFARDADORA, 1 CHIPEADORA, 1 PUNTO VERDE, 1 TRACTOR, 1 TRITURADORA DE VIDRIO,
+Que a fojas 67 obra ACTA DE RECEPCION DE BIENES, correspondientes al ANEXO I (fjs. 60) de la ADENDA Nº 1, registrada bajo el Nº 5/2024, que consta de 1 RETROEXCAVADORA 135 HP 20 TN, 1 CARRO DE DIFUSION DE CLASIFICACION DE RSU, y
+Considerando el Departamento Ejecutivo conveniente la convalidación del Honorable Concejo Deliberante
+Que la presente ordenanza fue aprobada en general y en particular el artículo 1º por mayoría, 7 votos por la afirmativa del bloque Unión por la Patria PJ (con el voto doble del presidente del H.C.D Peón Ramiro) y 7 votos por la negativa del bloque Juárez Renace y el bloque Juntos; en particular el artículo 2º fue aprobado por mayoría 10 votos por la afirmativa del bloque Unión por la Patria PJ y el bloque Juárez Renace y 4 votos por la negativa del bloque Juntos.
+El Honorable Concejo Deliberante de la municipalidad de Benito Juárez en uso de sus atribuciones que le son propias, resuelve y:
+ORDENANZA
