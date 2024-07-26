@@ -1,0 +1,9 @@
+Ordenanza Nº6025
+Ordenanza Nº 6025
+Benito Juarez, 13/06/2024
+Visto lo actuado en el Expediente Letra “R” Nº 46/2024, en el cual a fojas 16 obra el Decreto Municipal Nº 565/2024 por el cual se llamó a Licitación Privada Nº 04/2024, para la adquisición de ropa de trabajo para el personal administrativo
+Que el Jefe de Compras, informa a fojas 146 y 147 que se ha presentado un solo oferente en los Ítems Nº 5 , Nº 6, Nº 7, Nº 8, Nº 9, Nº 10, Nº 12, Nº 13, Nº 14, Nº 19 y Nº 20, cumpliendo con lo dispuesto en el Pliego de Bases y Condiciones, siendo la firma ESCOBAR MARIA IRUPE CUIT 27-34577433-0, y el ITEM Nº 15, cumpliendo con lo dispuesto en el Pliego de Bases y Condiciones la firma ETIENNE TERESA HAYDEE CUIT 27-0456003-9, sugiriendo adjudicar a las citadas firmas la provisión de ropa de trabajo para el personal administrativo, haciendo cumplir lo dispuesto en el Artículo 155 de la L.O.M.
+Que a fojas 148, 149, 150 y 151, obran despachos favorables de la Directora General de Recursos Humanos, Contadora Municipal, y del Jefe de Gabinete a cargo de la Secretaria de Hacienda, respectivamente, sobre la conveniencia de adjudicar a las firmas arriba citadas, la provisión de ropa de trabajo para el personal administrativo, y
+Considerando lo dispuesto en el Articulo Nº 155 de la L.O.M. y el Articulo Nº 187 del Reglamento de Contabilidad y dado que desde la apertura de propuestas, y análisis de las mismas y a los efectos de que no se venzan los plazos legales de mantenimiento de ofertas dado que la próxima sesión ordinaria del Honorable Concejo Deliberante, está establecida para el día 13 de junio de 2024, se confecciono el Decreto Municipal Nº 753/2024, con fecha 27 de mayo del corriente año, “Ad Referéndum” del Honorable Concejo Deliberante,
+El Honorable Concejo Deliberante de la municipalidad de Benito Juárez en uso de sus atribuciones que le son propias, resuelve y:
+ORDENANZA
