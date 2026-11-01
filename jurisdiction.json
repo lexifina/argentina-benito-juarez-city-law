@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-benito-juarez",
+  "code": "AR-B-BENITO-JUAREZ",
+  "name": "Benito Juárez",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-benito-juarez-city-law",
+  "build": "built: municipal ordinances (201 ordinances, 201 versions) from https://sibom.slyt.gba.gob.ar/cities/12",
+  "language": "es",
+  "sources": 1
+}

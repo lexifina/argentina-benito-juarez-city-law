@@ -1,0 +1,9 @@
+# Ordenanza 5500/2020: AUTORIZASE AL DEPARTAMENTO EJECUTIVO A FIRMAR NUEVO CONVENIO DE SUBVENCIÓN DE BECAS ENTRE EL ORGANISMO PROVINCIAL DE LA NIÑEZ Y ADOLESCENCIA DE LA PROVINCIA DE BUENOS AIRES Y LA MUNICIPALIDAD DE BENITO JUÁREZ, CON DESTIN
+
+Ordenanza 5500/2020 · 1 versions, from 2020-03-27 (latest in force: 2020-03-27) · <https://sibom.slyt.gba.gob.ar/bulletins/3371/contents/1438981>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
